@@ -1,2 +1,2 @@
 # bharbic.github.io
-# hi, welcome to my websites and hopefully my future projects!
+# hi, welcome to my website, and hopefully, my future projects!
